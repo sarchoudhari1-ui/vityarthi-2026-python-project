@@ -1,1 +1,1 @@
-vityarti 2026 python project
+VITYARTHI 2026 PYTHON PROJECT
